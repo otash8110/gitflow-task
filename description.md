@@ -1,0 +1,2 @@
+## Description
+The Samsung Galaxy S22 is a series of Android-based smartphones designed, developed, manufactured, and marketed by Samsung Electronics as part of its Galaxy S series. Unveiled at Samsung's Galaxy Unpacked event on 9 February 2022.
